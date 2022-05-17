@@ -6,7 +6,8 @@ Am **Silvester** and technology is my area of *passion*
 >  countries like 
 >  1. Kenya
 >  2. Nigeria
->  3. South Africa
->  aro now visible on the global radar after embracing technology
+>  3. South Africa>
+
+are now visible on the global radar after embracing technology
 'we are going to be part of that change as ALX'
 
